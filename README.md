@@ -26,7 +26,7 @@ Have questions or suggestions? Feel free to reach out to us! Visit the [Contact]
 
 ## Video
 
-Check out the introduction video [here](jaipur.mp4).
+Check out the introduction video [here](https://drive.google.com/file/d/1_ZIL4hBTffpyUxKTznddQDfSEE1tBrmg/view?usp=sharing).
 
 ---
 
